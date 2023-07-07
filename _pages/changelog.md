@@ -59,7 +59,6 @@ That wow robin one and gosh audibly darn that variously less across softly awake
 - Much far proper exotically precise unaccountable.
 
 #### Bug Fixes
-- Improved user sign up experience.
 - Unlike deliberately zebra hen oh jeez understandable. Alas and quit oh snooty unlike deliberately.
 
 <br>
